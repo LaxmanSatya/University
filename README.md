@@ -1,1 +1,1 @@
-# All 2ND YEar Semester Subjects
+# All 2ND Year Semester 1 Subjects
