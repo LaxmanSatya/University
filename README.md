@@ -1,1 +1,1 @@
-# All 2ND Year Semester 1 Subjects
+# All 2ND Year Semester 1 Courses :)
